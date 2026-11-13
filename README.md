@@ -1,4 +1,4 @@
-# Gebeyehu-Abebe-
+# Professional Summary
 # Dr. Gebeyehu Abebe
 
 **Assistant Professor | Remote Sensing Researcher | Geospatial data Scientist**
